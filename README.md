@@ -1,2 +1,2 @@
 # Study
-Aqui vou postar meus progressos.
+Aqui vou postar meu progresso.
